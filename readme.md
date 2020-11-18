@@ -1,1 +1,1 @@
-This is my cake
+This is my cake recipe
